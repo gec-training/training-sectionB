@@ -1,5 +1,3 @@
 # training-sectionB
 
-name : Kaushik Shaw
-phone no. : 8340605349
-email : kaushikshawjsr@gmail.com
+Kaushik Shaw  8340605349 kaushikshawjsr@gmail.com
