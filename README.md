@@ -1,3 +1,3 @@
 # training-sectionB
 
-Kaushik Shaw  8340605349 kaushikshawjsr@gmail.com
+Kaushik Shaw 2301292238 kaushikshawjsr@gmail.com
