@@ -1,2 +1,2 @@
-# training-sectionB
-Shivangi Kumari shivangilkr2005@gmail.com 8102025850
+# training-section
+Vinit Kumar haneykumar8907@gmail.com 2301292140
