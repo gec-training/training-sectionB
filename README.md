@@ -1,2 +1,2 @@
 # training-sectionB
-Shivangi Kumari shivangilkr2005@gmail.com 8102025850
+Ashwan Arya ashwanarya20042004@gmail.com 2301292437
