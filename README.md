@@ -1,2 +1,3 @@
 # training-sectionB
-Shivangi Kumari shivangilkr2005@gmail.com 8102025850
+
+Sujal Mahapatra 2301292129 sujalmahapatra@gmail.com
