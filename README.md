@@ -11,4 +11,6 @@ Ayush aasfd@gmail.com 9835271602 </br>
 Shakti Biplab shaktibiplab61@gmail.code 7735518716</br>
 Sujal Mahapatra sujalmahapatra@gmail.com 8789157335 </br>
 Abhishek Kumar akhilujjwal00@gmail.com 6299518949 </br>
+Mrutyunjaya Das mrutyunjayadas47@gmail.com 9348845590 </br> 
 komal kumari sectionB, komalkumari3631@gamil.com, 6200658697 </br>
+
