@@ -1,4 +1,3 @@
 # training-sectionB
 
-Vinit Kumar haneykumar8907@gmail.com 2301292140
-
+SUMIT PRASAD sumitsmile6@gmail.com  6203722428
