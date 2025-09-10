@@ -1,2 +1,2 @@
 # training-sectionB
-komal kumari sectionB phn no. 6200658697 email komalkumari3631@gamil.com
+komal kumari sectionB, komalkumari3631@gamil.com, 6200658697
