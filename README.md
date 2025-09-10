@@ -1,4 +1,4 @@
 # training-sectionB
 
-Ashwan Arya ashwanarya20042004@gmail.com 2301292437
+Vinit Kumar haneykumar8907@gmail.com 2301292140
 
